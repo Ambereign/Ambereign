@@ -8,7 +8,7 @@ If it seems like I'm ignoring you, please do not take it personally! Ironically 
 
 I am most active during clover / pearl season, as I find it a joy to hunt for them. Almost always on 18+ server sitting wherever. At night I'm usually high or drunk, so fair warning.
 
-My art comms are open... ko-fi and portfolio located in the linktree 👀
+My art comms are open... ko-fi and portfolio located in my linktree 👀
 
 ## 🍬 INTERESTS . . . ☆
 
@@ -24,7 +24,7 @@ Smaller misc stuff like minecraft args / horror mods, Markiplier, entymology, wi
 
 ## 🕸️ DO NOT INTERACT . . . ★
 
-You can find different DNIs on each link to the side, but the basics are: **T.R.A.S.H, ZOOPHILES, PROSHIPPERS, NECROPHILES, AND ANYTHING CONSIDERED ILLEGAL.** I see too many of you on here.
+You can find different DNIs on each link to the side, but the basics are: **T.R.A.S.H, ZOOPHILES, PROSHIPPERS, NECROPHILES, AND ANYTHING ELSE CONSIDERED ILLEGAL.** I see too many of you on here.
 
 If you play or support **Dandy's World, Forsaken, Pressure, Mouthwashing, Vivziepop's shows (Helluva Boss + Hazbin Hotel), TCOAALL,** or anything similar. Ponies will be automatically hidden for some of these.
 
