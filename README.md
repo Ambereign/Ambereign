@@ -14,7 +14,7 @@ My art comms are open... ko-fi and portfolio located in my linktree 👀
 
 **TOONTOWN!!!** Heavily invested in Event Horizon specifically, but I also like Corporate Clash. I am also a nonsharing soulbond for the Pacesetter, my lovely wife.
 
-Regretevator, may be that one infamous Pestkit shipper...?
+Regretevator, may be that one Pestkit shipper...?
 
 Object shows, specifically BFDI/BFDIA/BFB and HFJONE!
 
