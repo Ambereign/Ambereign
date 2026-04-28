@@ -6,7 +6,7 @@ I am 21 y.o. (1/31), and I am a multifandom + OC artist. Warning for LOTS of yur
 
 If it seems like I'm ignoring you, please do not take it personally! Ironically this game gives me very bad social anxiety, so unless I'm with friends I am very closed off and shy. I am also typically offtab working on things, so I will not see you. Apologies!
 
-I am most active during clover / pearl season, as I find it a joy to hunt for them.
+I am most active during clover / pearl season, as I find it a joy to hunt for them. Almost always on 18+ server sitting wherever. At night I'm usually high or drunk, so fair warning.
 
 My art comms are open... ko-fi and portfolio located in the linktree 👀
 
