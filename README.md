@@ -1,6 +1,6 @@
 ## 🍂 ABOUT ME . . . ★
 
-Hi! My name is **Ambereign**, shortened to **Amber**! I also go by the names **Pest** and **Graham**... and my pronouns? **She/it/they** +
+Hi! My name is **Ambereign**, shortened to **Amber**! I also go by the names **Pest** and **Graham**.
 
 I am 21 y.o. (1/31), and I am a multifandom + OC artist. Warning for LOTS of yuri. I also really like the Pacesetter and Bondholder. :)
 
