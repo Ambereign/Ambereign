@@ -1,3 +1,7 @@
+<img width="2048" height="786" alt="Pacerpest" src="https://github.com/user-attachments/assets/22b2442e-a9c3-4967-9f7e-f4b2f9321727" />
+
+###### ♡ Art made by [allergic-to-fruits](https://vgen.co/allergic-to-fruits) ♡
+
 ## 🍂 ABOUT ME . . . ★
 
 Hi! My name is **Ambereign**, shortened to **Amber**! I also go by the names **Pest** and **Graham**.
