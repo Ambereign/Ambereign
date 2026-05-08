@@ -32,6 +32,6 @@ You can find different DNIs on each link to the side, but the basics are: **T.R.
 
 If you play or support **Dandy's World, Forsaken, Pressure, Mouthwashing, FriendOS, Vivziepop's shows (Helluva Boss + Hazbin Hotel), TCOAALL,** or anything similar. Ponies will be automatically hidden for some of these.
 
-If you expect me to roleplay with you, especially in a shipping sense, if I don't know you. Most of my ponies are introjects, and we are **taken**!
+If you expect me to roleplay with you, especially in a shipping sense, if I don't know you. Most of my ponies are introjects, and we are **taken**! Additionally, do not make sexual jokes towards me/my ponies.
 
 Against "self-diagnosed" people, including systems. Use your brain for this.
