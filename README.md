@@ -1,4 +1,4 @@
-<img width="2048" height="786" alt="Pacerpest" src="https://github.com/user-attachments/assets/22b2442e-a9c3-4967-9f7e-f4b2f9321727" />
+<img width="921" height="367" alt="Pacerpest" src="https://github.com/user-attachments/assets/e286e081-a905-4dea-a6e0-6a8f645c0207" />
 
 ###### ♡ Art made by [allergic-to-fruits](https://vgen.co/allergic-to-fruits) ♡
 
