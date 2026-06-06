@@ -28,7 +28,7 @@ Smaller misc stuff like minecraft args / horror mods, Markiplier, entymology, wi
 
 ## 🕸️ DO NOT INTERACT . . . ★
 
-You can find different DNIs on each link to the side, but the basics are: **T.R.A.S.H, ZOOPHILES, PROSHIPPERS, NECROPHILES, AND ANYTHING ELSE CONSIDERED ILLEGAL.** I see too many of you on here.
+Pretty much the basics, which are: **T.R.A.S.H, ZOOPHILES, PROSHIPPERS, NECROPHILES, AND ANYTHING ELSE CONSIDERED ILLEGAL.** I see too many of you on here.
 
 If you play or support **Dandy's World, Forsaken, Pressure, Mouthwashing, FriendOS, Vivziepop's shows (Helluva Boss + Hazbin Hotel), TCOAALL,** or anything similar. Ponies will be automatically hidden for some of these.
 
