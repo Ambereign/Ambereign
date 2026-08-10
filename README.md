@@ -12,11 +12,11 @@ If it seems like I'm ignoring you, please do not take it personally! Ironically 
 
 I am most active during clover / pearl season, as I find it a joy to hunt for them. Almost always on 18+ server sitting wherever. At night I'm usually high or drunk, so fair warning.
 
-My art comms are open... ko-fi and portfolio located in my linktree 👀
+My art comms are open... artist alley located in the links 👀
 
 ## 🍬 INTERESTS . . . ☆
 
-**TOONTOWN!!!** Heavily invested in Event Horizon specifically, but I also like Corporate Clash. I am also a nonsharing soulbond for the Pacesetter, my lovely wife.
+**TOONTOWN!!!** Heavily invested in Event Horizon specifically, but I also like Corporate Clash. I am also a nonsharing riako for the Pacesetter, my lovely wife.
 
 Regretevator, may be that one Pestkit shipper...?
 
