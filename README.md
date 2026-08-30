@@ -6,25 +6,13 @@
 
 Hi! My name is **Ambereign**, shortened to **Amber**! I also go by the names **Pest** and **Graham**.
 
-I am 21 y.o. (1/31), and I am a multifandom + OC artist. Warning for LOTS of yuri. I also really like the Pacesetter and Bondholder. :)
+I am 21 y.o. (1/31), and I am a multifandom + OC artist. Warning for LOTS of yuri. I also really like the [Pacesetter](https://corporateclash.wiki.gg/wiki/Pacesetter) and [Bondholder](https://toontowneventhorizon.miraheze.org/wiki/Bondholder). :)
 
-If it seems like I'm ignoring you, please do not take it personally! Ironically this game gives me very bad social anxiety, so unless I'm with friends I am very closed off and shy. I am also typically offtab working on things, so I will not see you. Apologies!
+If it seems like I'm ignoring you, please do not take it personally! Ironically this game gives me very bad social anxiety, so unless I'm with friends I am very closed off and shy. I am also typically off-tab working on things, so I will not see you. Apologies!
 
-I am most active during clover / pearl season, as I find it a joy to hunt for them. Almost always on 18+ server sitting wherever. At night I'm usually high or drunk, so fair warning.
+I am most active during clover / pearl season, as I find it a joy to hunt for them. Almost always on 18+ server sitting wherever, though at night I'm usually high or drunk, so fair warning.
 
 My art comms are open... artist alley located in the links 👀
-
-## 🍬 INTERESTS . . . ☆
-
-**TOONTOWN!!!** Heavily invested in Event Horizon specifically, but I also like Corporate Clash. I am also a nonsharing riako for the Pacesetter, my lovely wife.
-
-Regretevator, may be that one Pestkit shipper...?
-
-Object shows, specifically BFDI/BFDIA/BFB and HFJONE!
-
-Music-wise- Twenty One Pilots, Death Grips, Maneskin, Metallica, Korn, Depeche Mode, K.Flay, VyletPony, Crosses, Miracle Musical, The Caretaker, grandson, and various media soundtracks!
-
-Smaller misc stuff like minecraft args / horror mods, Markiplier, entymology, with other fandoms sprinkled in.
 
 ## 🕸️ DO NOT INTERACT . . . ★
 
